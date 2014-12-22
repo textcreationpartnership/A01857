@@ -36,372 +36,68 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A full, ample and punctuall discouery of the barbarous, bloudy, and inhumane practises of the Spanis
+
+1. ❧ The ſpeciall matters contained in this Treatiſe, placed orderly in ſuch wiſe as the Inquiſitours proceed in their Court.
+
+1. The tranſlatour to the Reader.
+
+1. The Preface of the Author.
+
 #####Body#####
 
-1. CHAP. I.
+1. A DISCOVERY AND plaine declaration of ſundry policies practiſed in the Spaniſh Inquiſition.
 
-    _ Iohn Pontio de Leon.
+    _ CHAP. I.
 
-    _ Iohn Gonſalue a Preacher.
+    _ CHAP. II.
 
-    _ Of foure women of Siuil.
+    _ CHAP. III.
 
-    _ Ferdinando à Sancto Ioanno.
+    _ CHAP. IIII.
 
-    _ Iuliano Ferdinando.
+    _ CHAP. V.
 
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
+    _ CHAP. VI.
 
-    _ Franciſca Chaueſia.
+    _ CHAP. VIII.
 
-    _ Chriſtophoro Loſada a Phiſition.
+    _ CHAP. IX.
 
-    _ Christophoro Arelliano.
+    _ CHAP. X.
 
-    _ Garſias Arias commonly called Seignior Blanco.
+    _ CHAP. XI.
 
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
+    _ CHAP. XII.
 
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
+    _ CHAP. XIII.
 
-1. CHAP. II.
+    _ CHAP. XIIII.
 
-    _ Iohn Pontio de Leon.
+    _ CHAP. XV.
 
-    _ Iohn Gonſalue a Preacher.
+      * Iohn Pontio de Leon.
 
-    _ Of foure women of Siuil.
+      * Iohn Gonſalue a Preacher.
 
-    _ Ferdinando à Sancto Ioanno.
+      * Of foure women of Siuil.
 
-    _ Iuliano Ferdinando.
+      * Ferdinando à Sancto Ioanno.
 
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
+      * Iuliano Ferdinando.
 
-    _ Franciſca Chaueſia.
+      * Iohn de Leon a Monke of Saint Iſidors cloiſter.
 
-    _ Chriſtophoro Loſada a Phiſition.
+      * Franciſca Chaueſia.
 
-    _ Christophoro Arelliano.
+      * Chriſtophoro Loſada a Phiſition.
 
-    _ Garſias Arias commonly called Seignior Blanco.
+      * Christophoro Arelliano.
 
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
+      * Garſias Arias commonly called Seignior Blanco.
 
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
+      * D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
 
-1. CHAP. III.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. IIII.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. V.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. VI.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. VIII.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. IX.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. X.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. XI.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. XII.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. XIII.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. XIIII.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
-
-1. CHAP. XV.
-
-    _ Iohn Pontio de Leon.
-
-    _ Iohn Gonſalue a Preacher.
-
-    _ Of foure women of Siuil.
-
-    _ Ferdinando à Sancto Ioanno.
-
-    _ Iuliano Ferdinando.
-
-    _ Iohn de Leon a Monke of Saint Iſidors cloiſter.
-
-    _ Franciſca Chaueſia.
-
-    _ Chriſtophoro Loſada a Phiſition.
-
-    _ Christophoro Arelliano.
-
-    _ Garſias Arias commonly called Seignior Blanco.
-
-    _ D. Iohn Aegidio a Canon and Preacher in the Cathedrall Church in Siuill.
-
-    _ Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
+      * Doctor Constantino Fontio, a Canon and Preacher in the Cathedrall Church in Siuill.
 
 **Types of content**
 
